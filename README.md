@@ -1,3 +1,4 @@
+                                                    RESUME
 NALINI MANGELA
 Registered Nurse, BSN
 42, Livingstone Street west, L4N7J2, Barrie, Ontario
@@ -95,4 +96,8 @@ AVAILABILITY
 Alternate week can be available on Monday, Wednesday, and Friday.
 
 Flexible to pick extra shifts based on the needs.
+
+                                                               PHYLOSOPHY STATEMENT 
+As a registered nurse, I believe in providing compassionate and patient-centered care that is grounded in evidence-based practice. I am committed to treating each patient with respect, dignity, and empathy, and I strive to create a safe and supportive environment that promotes healing and recovery. I believe in collaborating with other healthcare professionals to provide comprehensive and coordinated care that addresses the physical, emotional, and spiritual needs of each patient. I am dedicated to lifelong learning and professional development, and I believe in staying up-to-date with the latest research and best practices to provide the highest quality care possible.
+
 
